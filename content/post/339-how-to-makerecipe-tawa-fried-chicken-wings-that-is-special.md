@@ -1,0 +1,102 @@
+---
+description: "How to Make|Recipe Tawa fried chicken wings {That is Special"
+title: "How to Make|Recipe Tawa fried chicken wings {That is Special"
+slug: 339-how-to-makerecipe-tawa-fried-chicken-wings-that-is-special
+category: Uncategorized
+date: 2023-05-02T15:41:09.264Z
+date: 2023-09-12T21:17:12.783Z
+image: https://img-global.cpcdn.com/recipes/eb60bd6490ff02d0/680x482cq70/tawa-fried-chicken-wings-recipe-main-photo.jpg
+hideToc: false
+enableToc: true
+enableTocContent: false
+thumbnail: https://img-global.cpcdn.com/recipes/eb60bd6490ff02d0/680x482cq70/tawa-fried-chicken-wings-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/eb60bd6490ff02d0/680x482cq70/tawa-fried-chicken-wings-recipe-main-photo.jpg
+author: Admin
+authorAv: notfound
+ratingvalue: 3.3
+reviewcount: 22
+recipeingredient:
+- "500grm Chicken wings"
+- "1 tsp Turmeric powder"
+- "1 tbsp Chilli powder"
+- "1 tsp Cumin powder"
+- "1 tbsp Ginger garlic paste"
+- "1 tbsp Soya sauce"
+- "1 tbsp Chilli sauce"
+- "1 tsp Mixed herbs"
+- "as required Egg white 1beaten"
+- "2 tbsp Cornflour"
+- "as per taste Salt"
+recipeinstructions:
+- "Step 1            Wash and marinate wings with turmeric powder and salt, set aside for 1 hour"
+- "Step 2            In a bowl mix all the other ingredients"
+- "Step 3            Add with marinated wings, blend well, keep it in fridge over night"
+- "Step 4            Keep a tawa, add 3tbs oil, spread well, once heat, add wings, after 5min reduce flame in low, cover and cook for 5 min, turn and continue to cook with cover for 5 min, then remove cover, and cook 10 more min"
+- "Step 5            Once finished all the wings, put off flame, spread the fried wings on tawa, cover with kitchen towel, for 10min and serve hot"
+- "Ready to serve and ENJOY!"
+categories:
+- Recipe
+tags:
+- tawa
+- fried
+- chicken
+
+katakunci: tawa fried chicken 
+nutrition: 185 calories
+recipecuisine: United Kingdom
+preptime: "PT35M"
+cooktime: "PT45M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+Good Afternoon| You are currently looking for a recipe inspiration tawa fried chicken wings delicious? The method of making is not difficult and not too easy. If wrong process it, the result will be tasteless and even unpleasant. Meanwhile the delicious tawa fried chicken wings should have aroma and taste that can provoke our appetite.
+
+
+
+
+
+
+There are many things that more or less have an effect on the quality of taste dari tawa fried chicken wings, first from the type of ingredients, then the selection of fresh ingredients, up to how to process and serve it. No need to bother if want prepare tawa fried chicken wings tasty home, because as long as you know the tricks and how to do this, this dish be able to be serve  special.
+
+
+We mostly eat wings as fried or baked, but in this recipe wings are prepared on tawa. You will like the hot and spicy taste of Tawa Chicken Wings. A perfect chicken dinner for the whole family. Heat the oil on tawa, Add chicken wings with garlic and ginger and fry until light golden brown.
+
+
+To begin with this recipe, we must first prepare a few components. You can cook tawa fried chicken wings using 11 ingredients and 5 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Tawa fried chicken wings:
+
+1. Make ready 500grm Chicken wings
+1. Take 1 tsp Turmeric powder
+1. Take 1 tbsp Chilli powder
+1. Make ready 1 tsp Cumin powder
+1. Prepare 1 tbsp Ginger garlic paste
+1. Get 1 tbsp Soya sauce
+1. Get 1 tbsp Chilli sauce
+1. Prepare 1 tsp Mixed herbs
+1. Take as required Egg white 1(beaten)
+1. Make ready 2 tbsp Cornflour
+1. Get as per taste Salt
+
+
+Process: Heat oil on a Tawa or a pan and add the chopped ginger and garlic. Fry on low heat for a minute and add the chicken pieces. Add all the spice powders (turmeric, red chilli, coriander, cumin and garam masala powder) and salt. Method: Heat the oil on tawa, Add chicken wings with garlic and ginger and fry until light golden brown. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Tawa fried chicken wings:
+
+1. Step 1            Wash and marinate wings with turmeric powder and salt, set aside for 1 hour
+1. Step 2            In a bowl mix all the other ingredients
+1. Step 3            Add with marinated wings, blend well, keep it in fridge over night
+1. Step 4            Keep a tawa, add 3tbs oil, spread well, once heat, add wings, after 5min reduce flame in low, cover and cook for 5 min, turn and continue to cook with cover for 5 min, then remove cover, and cook 10 more min
+1. Step 5            Once finished all the wings, put off flame, spread the fried wings on tawa, cover with kitchen towel, for 10min and serve hot
+1. Ready to serve and ENJOY!
+
+Add all the spice powders (turmeric, red chilli, coriander, cumin and garam masala powder) and salt. Method: Heat the oil on tawa, Add chicken wings with garlic and ginger and fry until light golden brown. Add tomatoes, yughert, and all spices, covered and cooked until chicken wings are done and masala separates oil. After butter gets melted, add the marinated chicken pieces and fry in batches till they are cooked on both sides. Add more butter if needed while frying. 
+
+So that's going to wrap it up with this exceptional food tawa fried chicken wings recipe. Thanks so much for your time. I'm confident you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

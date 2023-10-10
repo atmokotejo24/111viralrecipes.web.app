@@ -1,0 +1,108 @@
+---
+description: "How to Make|Recipe Brad&amp;#39;s fried chicken with thai panang curry sauce {That is Delicious"
+title: "How to Make|Recipe Brad&amp;#39;s fried chicken with thai panang curry sauce {That is Delicious"
+slug: 1045-how-to-makerecipe-brad-and-39-s-fried-chicken-with-thai-panang-curry-sauce-that-is-delicious
+category: Uncategorized
+date: 2023-01-19T00:20:29.216Z
+date: 2023-08-06T17:28:52.654Z
+image: https://img-global.cpcdn.com/recipes/c4ad43fe5a9a3072/680x482cq70/brads-fried-chicken-with-thai-panang-curry-sauce-recipe-main-photo.jpg
+hideToc: false
+enableToc: true
+enableTocContent: false
+thumbnail: https://img-global.cpcdn.com/recipes/c4ad43fe5a9a3072/680x482cq70/brads-fried-chicken-with-thai-panang-curry-sauce-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/c4ad43fe5a9a3072/680x482cq70/brads-fried-chicken-with-thai-panang-curry-sauce-recipe-main-photo.jpg
+author: Admin
+authorAv: notfound
+ratingvalue: 3.9
+reviewcount: 4
+recipeingredient:
+- "4 boneless skinless chicken thighs"
+- "2 cups panko"
+- "2 cups flour"
+- "1 tbs each garlic powder dry mustard ginger sea salt"
+- "2 eggs beaten"
+- "2 servings white rice prepared"
+- "1 lg shallot chopped"
+- "1 baby bok choy sliced thin"
+- "2 seranno peppers seeded and minced"
+- "3 Oz oyster mushrooms sliced thin"
+- "1 medium zucchini cut in half lengthwise then sliced"
+- "8 leaves thai basil Chopped plus some for garnish"
+- "2 small potatoes"
+- "1 jar panang curry simmer sauce"
+recipeinstructions:
+- "Step 1            Add shallot, bok choy, pepper, and mushroom to a heated fry pan with a little oil. Saute until tender"
+- "Step 2            Meanwhile, mix flour and spices in a bowl. Eggs in another, and panko in another. In another fry pan heat oil for frying on medium low"
+- "Step 3            Meanwhile, cook potatoes in oven or microwave. Until soft. Set aside to cool. When cool cube to 1 &#34;"
+- "Step 4            When veggies are tender, add zucchini and basil. Cook 4 more minutes. Add sauce and potatoes. Simmer on low until sauce thickens slightly."
+- "Step 5            Dredge chicken in flour, then egg, then panko. Fry on medium low until browned and cooked through."
+- "Step 6            Plate rice, then top with chicken. The top with sauce, garnish with basil. Serve immediately. Enjoy"
+- "Ready to serve and ENJOY!"
+categories:
+- Recipe
+tags:
+- brads
+- fried
+- chicken
+
+katakunci: brads fried chicken 
+nutrition: 125 calories
+recipecuisine: United Kingdom
+preptime: "PT25M"
+cooktime: "PT41M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+Good Afternoon| Are looking for a recipe inspiration brad&#39;s fried chicken with thai panang curry sauce unique? The method of preparing is not difficult and not too easy. If wrong process it, the result will not be satisfying and even unpleasant. Meanwhile the delicious brad&#39;s fried chicken with thai panang curry sauce must have aroma and taste that can provoke our appetite.
+
+
+
+
+
+Here is how you cook that. Ingredients of Brad&#39;s fried chicken with thai panang curry sauce. Brad&#39;s fried chicken with thai panang curry sauce. Panang curry with chicken represents the diversity of Thailand&#39;s southern region.
+
+Brad&#39;s fried chicken with thai panang curry sauce is one of the most favored of current trending foods in the world. It is simple, it is quick, it tastes yummy. It is appreciated by millions daily. They are fine and they look wonderful. Brad&#39;s fried chicken with thai panang curry sauce is something which I've loved my entire life.
+
+
+To begin with this particular recipe, we must first prepare a few components. You can have brad&#39;s fried chicken with thai panang curry sauce using 14 ingredients and 6 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Brad&#39;s fried chicken with thai panang curry sauce:
+
+1. Take 4 boneless, skinless chicken thighs
+1. Prepare 2 cups panko
+1. Prepare 2 cups flour
+1. Take 1 tbs each; garlic powder, dry mustard, ginger, sea salt
+1. Prepare 2 eggs, beaten
+1. Take 2 servings white rice, prepared
+1. Get 1 lg shallot, chopped
+1. Take 1 baby bok choy, sliced thin
+1. Make ready 2 seranno peppers, seeded and minced
+1. Take 3 Oz oyster mushrooms, sliced thin
+1. Take 1 medium zucchini, cut in half lengthwise then sliced
+1. Take 8 leaves, thai basil. Chopped, plus some for garnish
+1. Take 2 small potatoes
+1. Make ready 1 jar panang curry simmer sauce
+
+
+Plate rice, then top with chicken. The top with sauce, garnish with basil.. Brad&#39;s fried chicken with thai panang curry sauce instructions. Add shallot, bok choy, pepper, and mushroom to a heated fry pan with a little oil. 
+
+<!--inarticleads2-->
+
+##### Steps to make Brad&#39;s fried chicken with thai panang curry sauce:
+
+1. Step 1            Add shallot, bok choy, pepper, and mushroom to a heated fry pan with a little oil. Saute until tender
+1. Step 2            Meanwhile, mix flour and spices in a bowl. Eggs in another, and panko in another. In another fry pan heat oil for frying on medium low
+1. Step 3            Meanwhile, cook potatoes in oven or microwave. Until soft. Set aside to cool. When cool cube to 1 &#34;
+1. Step 4            When veggies are tender, add zucchini and basil. Cook 4 more minutes. Add sauce and potatoes. Simmer on low until sauce thickens slightly.
+1. Step 5            Dredge chicken in flour, then egg, then panko. Fry on medium low until browned and cooked through.
+1. Step 6            Plate rice, then top with chicken. The top with sauce, garnish with basil. Serve immediately. Enjoy
+1. Ready to serve and ENJOY!
+
+Brad&#39;s fried chicken with thai panang curry sauce instructions. Add shallot, bok choy, pepper, and mushroom to a heated fry pan with a little oil. Stir in Thai basil leaves and you have a. Panang Gai (พะแนงไก่) or Panang curry with chicken, is a traditional Thai recipe with red curry paste, chicken and coconut milk. Panang curry with chicken represents the diversity of Thailand&#39;s southern region. 
+
+So that's going to wrap this up for this special food brad&#39;s fried chicken with thai panang curry sauce recipe. Thanks so much for reading. I'm confident that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

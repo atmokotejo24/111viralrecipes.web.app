@@ -1,0 +1,109 @@
+---
+description: "How to Make|Recipe Pad Thai {That is Special"
+title: "How to Make|Recipe Pad Thai {That is Special"
+slug: 1571-how-to-makerecipe-pad-thai-that-is-special
+category: Uncategorized
+date: 2023-02-02T13:38:22.417Z
+date: 2023-09-21T16:55:36.110Z
+image: https://img-global.cpcdn.com/recipes/d91ed5800f187baf/680x482cq70/pad-thai-recipe-main-photo.jpg
+hideToc: false
+enableToc: true
+enableTocContent: false
+thumbnail: https://img-global.cpcdn.com/recipes/d91ed5800f187baf/680x482cq70/pad-thai-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/d91ed5800f187baf/680x482cq70/pad-thai-recipe-main-photo.jpg
+author: Admin
+authorAv: notfound
+ratingvalue: 3.9
+reviewcount: 8
+recipeingredient:
+- "100 g tamarind paste"
+- "50 g fish sauce"
+- "50 g palm sugar"
+- "25 g thai soy sauce"
+- "50 g water"
+- "50 g rice stick noodles"
+- "1 egg"
+- "100 g protein chicken tofu shrimp other seafood"
+- "50 g fresh or thai pickled carrot"
+- "75 g Bean sprouts"
+- " Garlic chives"
+- " Crushed peanuts"
+recipeinstructions:
+- "Step 1            Sauce: Combine ingredients in a saucepan and bring to a boil, then simmer until the sugar has dissolved. Strain. Adjust sweetness, saltiness and texture with sugar, fish sauce and water. Makes sauce for 4-6 servings. Can be kept refrigerated at least a couple of weeks."
+- "Step 2            Cut the chives to the same length as the bean sprouts."
+- "Step 3            Heat a wok on high heat and add some peanut oil."
+- "Step 4            Crack in the egg on one side of the pan, breaking the yolk."
+- "Step 5            Add the protein on the side of the egg and stir fry while the egg cooks."
+- "Step 6            Add the carrot and stir fry briefly, before breaking up the egg and stir frying everything in the pan together."
+- "Step 7            Add the noodles, stir-fry briefly, then pour in the sauce and stir-fry until the sauce is evenly distributed and the noodles are cooked through adding some water if it becomes too dry."
+- "Step 8            Add the bean sprouts, peanuts and chives and stir fry for a few moments."
+- "Step 9            Serve with fresh coriander, crushed peanuts, chilli flakes, sugar, soy sauce and fish sauce on the side as condiments."
+- "Ready to serve and ENJOY!"
+categories:
+- Recipe
+tags:
+- pad
+- thai
+
+katakunci: pad thai 
+nutrition: 187 calories
+recipecuisine: United Kingdom
+preptime: "PT28M"
+cooktime: "PT47M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+Good Afternoon| Are looking for a recipe idea pad thai tasty? The method of making is not difficult and not too easy. If wrong process it, the result will be tasteless and even likely to be unpleasant. Meanwhile the delicious pad thai must have aroma and taste that can provoke our appetite.
+
+
+
+
+
+Pad Thai is stir-fry dish made with rice noodles, shrimp, chicken, or tofu, peanuts, a scrambled egg and bean sprouts. The ingredients are sautéed together in a wok and tossed in a delicious Pad Thai sauce. It&#39;s a common street food in Thailand and one of the most popular menu items at Thai restaurants around the country. It&#39;s a comfort food of our age, with those chewy noodles, crunchy peanuts, the sweet and tangy sauce, and plenty of chives, bean sprouts, and chicken to make it a full meal.
+
+Pad Thai is one of the most popular of current trending foods in the world. It's appreciated by millions every day. It is easy, it's quick, it tastes delicious. They're nice and they look fantastic. Pad Thai is something that I have loved my entire life.
+
+
+To begin with this particular recipe, we must first prepare a few components. You can cook pad thai using 12 ingredients and 9 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Pad Thai:
+
+1. Take 100 g tamarind paste
+1. Get 50 g fish sauce
+1. Get 50 g palm sugar
+1. Take 25 g thai soy sauce
+1. Make ready 50 g water
+1. Get 50 g rice stick noodles
+1. Make ready 1 egg
+1. Make ready 100 g protein (chicken, tofu, shrimp, other seafood)
+1. Get 50 g fresh or thai pickled carrot
+1. Get 75 g Bean sprouts
+1. Take  Garlic chives
+1. Take  Crushed peanuts
+
+
+Pad thai is probably the number-one-selling dish at sit-down Thai restaurants in the U. S., but it actually has Chinese origins. In a small bowl, beat the eggs with a pinch of salt. Make the sauce: In a medium bowl, whisk together the water, fish sauce, soy sauce, vinegar, ketchup, sugar, and red pepper flakes. 
+
+<!--inarticleads2-->
+
+##### Steps to make Pad Thai:
+
+1. Step 1            Sauce: Combine ingredients in a saucepan and bring to a boil, then simmer until the sugar has dissolved. Strain. Adjust sweetness, saltiness and texture with sugar, fish sauce and water. Makes sauce for 4-6 servings. Can be kept refrigerated at least a couple of weeks.
+1. Step 2            Cut the chives to the same length as the bean sprouts.
+1. Step 3            Heat a wok on high heat and add some peanut oil.
+1. Step 4            Crack in the egg on one side of the pan, breaking the yolk.
+1. Step 5            Add the protein on the side of the egg and stir fry while the egg cooks.
+1. Step 6            Add the carrot and stir fry briefly, before breaking up the egg and stir frying everything in the pan together.
+1. Step 7            Add the noodles, stir-fry briefly, then pour in the sauce and stir-fry until the sauce is evenly distributed and the noodles are cooked through adding some water if it becomes too dry.
+1. Step 8            Add the bean sprouts, peanuts and chives and stir fry for a few moments.
+1. Step 9            Serve with fresh coriander, crushed peanuts, chilli flakes, sugar, soy sauce and fish sauce on the side as condiments.
+1. Ready to serve and ENJOY!
+
+In a small bowl, beat the eggs with a pinch of salt. Make the sauce: In a medium bowl, whisk together the water, fish sauce, soy sauce, vinegar, ketchup, sugar, and red pepper flakes. Thai food is so delicious, but Pad Thai is a favorite! If you have never had it, it is a Thai stir-fry dish made with rice noodles, shrimp, chicken, tofu, peanuts, scrambled eggs, and bean sprouts. The ingredients are sautéed together in a wok and tossed in a delicious Pad Thai sauce. 
+
+So that's going to wrap this up with this special food pad thai recipe. Thanks so much for your time. I'm confident you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
